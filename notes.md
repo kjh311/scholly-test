@@ -10,7 +10,6 @@ https://www.campaignmonitor.com/blog/email-marketing/2017/05/the-really-good-gui
 https://www.campaignmonitor.com/best-email-marketing-campaigns/b/
 https://www.youtube.com/watch?v=rMceqQMoac8
 
-
 Kev's HTML links:
 https://docs.google.com/document/d/1uYWJNUkwTCnOqzkyskHgRGgQ8sHYKztITm35aIO_MYM/edit
 
